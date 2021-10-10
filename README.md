@@ -1,2 +1,0 @@
-# aaditshah
-Personal Website
